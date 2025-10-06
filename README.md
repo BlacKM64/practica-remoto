@@ -1,1 +1,1 @@
-# Repo de práctica remoto principal (A)
+# Título editado por cuenta principal
